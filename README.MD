@@ -7,7 +7,7 @@
 
 - 👨‍💻 Check out my personal portfolio : **<a href="https://rashmi7151.github.io/portfolio.github.io/" target="_blank">Portfolio</a>**
 
-- 😄 Pronouns: He/His
+- 😄 Pronouns: She/Her
 
 <h3 align="left">Connect with me:</h3>
 <div align="left">
